@@ -98,4 +98,5 @@ FDM（熔融沉積成型）它是目前最常見、最平價、最適合新手�
 
 ### ref
 https://www.youtube.com/watch?v=hO1Jt4RYIk8 \
-https://www.youtube.com/watch?v=cQG75f3OHcI
+https://www.youtube.com/watch?v=cQG75f3OHcI \
+https://www.youtube.com/watch?v=kYQL_nGWxo8
