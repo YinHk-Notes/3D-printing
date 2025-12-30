@@ -96,3 +96,5 @@ FDM（熔融沉積成型）它是目前最常見、最平價、最適合新手�
 | 食物模型 | 一般 | 最佳 |
 
 
+### ref
+https://www.youtube.com/watch?v=hO1Jt4RYIk8
